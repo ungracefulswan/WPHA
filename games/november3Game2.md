@@ -9,7 +9,7 @@
 No Scoring
 ### Period 3
 
-03:04 | Illusion | Millie Costa (1)  ASST: Chie Shimizu (1)
+03:04 | Illusion | Mikayla Costa (1)  ASST: Chie Shimizu (1)
 
 06:25 | Illusion | Mercedes Rivera  (1)  ASST: Leah Lawrence (2), Tatum Simon (1)
 
