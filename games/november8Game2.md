@@ -26,13 +26,13 @@ No Penalties
 
 00:16 | Wicked | Margarete Wagner Charging, 2 min
 
-00:16 | Wicked | Margarete Wagner Slashing, 2 min
+00:16 | Wicked | Margarete Wagner Illegal Bodychecking, 2 min
 
-00:16 | Wicked | Haley Esposito Hooking, 2 min
+00:16 | Wicked | Haley Esposito Roughing, 2 min
 
 00:16 | Wicked | Haley Esposito Unsportsmanlike Conduct, 2 min
 
-05:52 | Wicked | Margarete Wagner Tripping, 2 min
+05:52 | Wicked | Margarete Wagner S;ashing, 2 min
 
 05:52 | Wicked | Elin Ali Delay of Game, 2 min
 
