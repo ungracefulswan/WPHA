@@ -37,4 +37,4 @@ No Penalties
 |Goalies |  | SH | SV | GA | SV% |
 | --- | ----------- |----| ---|---|---|
 |Steelheads|Amber Albrecht|21|20|1| 0.952|
-|Road Runners|Melissa Auer|37|35|2| 0.946|
+|Road Runners|Melissa Cochrane|37|35|2| 0.946|
