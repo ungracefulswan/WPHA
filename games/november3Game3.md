@@ -10,7 +10,7 @@
 18:32 | Pride | Hana Kolářová (1)  ASST: None
 ### Period 3
 
-12:53 | Pride | Erika Colombo (1)  ASST: Charlotte Blake (2) (PP)
+12:53 | Pride | Erika Collum (1)  ASST: Charlotte Blake (2) (PP)
 
 19:49 | Pride | Hana Kolářová (2)  ASST: None (EN)
 
