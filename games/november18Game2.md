@@ -17,7 +17,7 @@ No Scoring
 
 12:28 | Justice | Willow Lee (1)  ASST: Zoe Christian (2), Monica Jonsson (1)
 
-19:01 | Justice | Erica Chen (1)  ASST: Monica Jonsson (2) (EN)
+16:01 | Justice | Erica Chen (1)  ASST: Monica Jonsson (2) (EN)
 
 19:04 | Justice | Mackenzie Anders (2)  ASST: Monica Jonsson (3), Emelie Hermansson (1) (EN)
 
