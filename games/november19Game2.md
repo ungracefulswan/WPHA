@@ -12,7 +12,7 @@
 19:35 | Peak | Eva Young (1)  ASST: Alexis Willis (1)
 ### Period 3
 
-06:44 | Peak | Julianne Wagner (1)  ASST: Eva Young (2), Alexis Willis (2)
+06:44 | Peak | Julianne Williams (1)  ASST: Eva Young (2), Alexis Willis (2)
 
  ## Penalties
 ### Period 1
