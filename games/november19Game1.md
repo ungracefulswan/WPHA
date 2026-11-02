@@ -11,7 +11,7 @@ No Scoring
 
 01:54 | Tide | Ellis Lambert (1)  ASST: None (PP)
 
-07:10 | Queens | Alexis Ford (2)  ASST: Noah Price (2)
+07:10 | Queens | Alexis Ford (2)  ASST: Noah Price (2) (SH)
 
 14:18 | Queens | Brooke Robinson (6)  ASST: Alexis Ford (2)
 ### Overtime
