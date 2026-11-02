@@ -22,12 +22,14 @@ No Scoring
 ### Period 1
 No Penalties
 ### Period 2
-No Penalties
+
+03:42 | Queens | Brooke Robinson Charging, 2 min
+
+10:22 | Queens | Miriam Delgado Cross-checking, 2 min
+
+12:32 | Queens | Ashley Nadeau Charging, 2 min
+
 ### Period 3
-
-00:22 | Queens | Brooke Robinson Charging, 2 min
-
-00:22 | Queens | Miriam Delgado Cross-checking, 2 min
 
 00:22 | Queens | Michelle Sorrentino Charging, 2 min
 
@@ -35,15 +37,13 @@ No Penalties
 
 00:22 | Queens | Andrea Madison Unsportsmanlike Conduct, 2 min
 
-00:22 | Queens | Ashley Nadeau Charging, 2 min
-
 00:42 | Queens | Alexis Ford Roughing, 2 min
 
 00:42 | Queens | Andrea Madison Delay of Game, 2 min
 
-00:42 | Queens | Ashley Nadeau Tripping, 2 min
+03:42 | Queens | Ashley Nadeau Tripping, 2 min
 
-02:55 | Queens | Ashley Nadeau Unsportsmanlike Conduct, 2 min
+05:55 | Queens | Ashley Nadeau Unsportsmanlike Conduct, 2 min
 
 13:30 | Queens | Andrea Madison Slashing, 2 min
 
