@@ -6,7 +6,7 @@
 
 06:26 | Tide | Amory Carter (3)  ASST: Brittany Randall (1)
 
-11:14 | Pride | Hana Kolářová (3)  ASST: Charlotte Blake (3), Erika Colombo (1)
+11:14 | Pride | Hana Kolářová (3)  ASST: Charlotte Blake (3), Erika Collum (1)
 ### Period 2
 
 05:01 | Tide | Charlie Laurens (2)  ASST: Heidi Söderberg (3)
